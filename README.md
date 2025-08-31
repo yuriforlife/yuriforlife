@@ -4,5 +4,5 @@
 
 •─────⋅☾ ☽⋅─────•
 
-**I yearn for fashion roulettes and oc makers.....**
+**I yearn for fashion roulettes.....**
   
