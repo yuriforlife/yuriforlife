@@ -1,3 +1,5 @@
+this acc is mostly for roblox area 
+
 •─────⋅☾ ☽⋅─────•
 
 ![Screenshot_20250831-205401~2](https://github.com/user-attachments/assets/d0802301-ec7b-424e-ad7d-07e6c1efbc45)
